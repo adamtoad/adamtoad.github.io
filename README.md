@@ -1,1 +1,0 @@
-# adamtoad.github.io
